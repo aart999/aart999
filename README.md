@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @aart999
 - 👀 I’m interested in nothing
 - 🌱 I’m currently learning everything 
-- 💞️ I’m looking to collaborate on noone
-- 📫 How to reach me don't
+- 💞️ I’m looking to collaborate with noone
+- 📫 How to reach me : plsdon't
 - 😄 Pronouns: male
 - ⚡ Fun fact: none
 
